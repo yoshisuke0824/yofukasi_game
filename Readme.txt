@@ -1,2 +1,0 @@
-yoshisuke
-marimo
